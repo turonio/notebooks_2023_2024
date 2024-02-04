@@ -7,4 +7,4 @@ To be continued...
 
 P.S. I'm still loading works and not all of them are fresh
 
-P.S.S. English translations soon
+P.P.S. English translations soon
